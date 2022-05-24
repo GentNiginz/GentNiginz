@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GentNiginz
+- 👀 I’m interested in Football and Gaming
+- 🌱 I’m currently learning IT Systemengineering 
